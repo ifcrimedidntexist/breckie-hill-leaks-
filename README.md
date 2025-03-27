@@ -2,7 +2,8 @@ BRECKIE HILL ONLYFANS LEAKS 🎅
 
 # FREE LEAKS 
 
-JOIN THE DISCORD SERVER FOR LEAKS https://discord.gg/candle 
+# JOIN THE DISCORD SERVER FOR LEAKS https://discord.gg/candle 
+
+# TO VIEW THE FREE ONLYFANS LEAKS FOR MANY OTHER CREATORS MAKE SURE YOU BOOST THE SERVER AND IF YOU HAVE ANY QUESTIONS TEXT ME
 
 
-must verify your account before joining and verify in the "verify" channel to voice the roles channel and exposes 
